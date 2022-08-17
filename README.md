@@ -1,3 +1,3 @@
 - Hi, I’m DuckieKid
 - I’m interested in Youtube And Coding 
-- I’m Currently In School And In Many COding Classes
+- I’m Currently In School And In Many Coding Classes
